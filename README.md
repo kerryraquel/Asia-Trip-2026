@@ -1,2 +1,2 @@
-# Gloria-Kyle
-Shanghai - Suzhou
+# 2026 Asia Trip
+Hong Kong - Macau - Tokyo
